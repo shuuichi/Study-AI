@@ -1,1 +1,1 @@
-# Study-AI E資格試験勉強
+# Study-AI E資格試験の勉強
